@@ -1,6 +1,0 @@
-# viewmaster
-
-betlehem - temple mount
-
-# betz cell
-https://en.wikipedia.org/wiki/Betz_cell
